@@ -9,4 +9,5 @@ Roco, Gwen Kathleen<br>
 Tabadero, Audrea Arjaemi<br>
 Yao, Benson<br>
 <br>
-Exhibit Video Presentation: https://www.youtube.com/watch?v=iqIQbWZcEcA
+Exhibit Video Presentation: https://www.youtube.com/watch?v=iqIQbWZcEcA<br>
+Exhibit Video Documentation Video: https://www.youtube.com/watch?v=byI-VTraeqA
